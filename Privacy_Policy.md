@@ -1,4 +1,5 @@
 Privacy Policy
+
 Last updated: May 22, 2023
 
 This agreement is a contract between you and the copyright owner of the "Impermanence Loss Calculator" and has the legal effect of a contract. Please read it carefully.
